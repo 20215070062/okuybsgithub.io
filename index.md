@@ -1,1 +1,0 @@
- SAĞLIKLI GÜNLER  DİLERİZZZ..
